@@ -1,2 +1,4 @@
 # prueba-1
-programación básica
+programación basico 
+soy muy capas si me lo propongo 
+si me lo propongo lo lograre
